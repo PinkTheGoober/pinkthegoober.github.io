@@ -1,2 +1,2 @@
-# pinkthegoober.github.io
+# pinkthegoober.dev
 pinkthegoober.dev :3
